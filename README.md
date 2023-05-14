@@ -1,0 +1,1 @@
+# Analiis_tecnico_01
